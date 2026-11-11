@@ -1,1 +1,0 @@
-# unveiling-climate-change-dynamics-through-earth-surface-temperature-analysis
